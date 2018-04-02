@@ -1,2 +1,13 @@
 # hello-world
 i have no idea whats happening
+
+We're talking away
+I don't know what
+I'm to say I'll say it anyway
+Today's another day to find you
+Shying away
+I'll be coming for your love, okay?
+Take on me, (take on me)
+Take me on, (take on me)
+I'll be gone
+In a day or two
